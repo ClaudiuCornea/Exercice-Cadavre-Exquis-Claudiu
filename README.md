@@ -14,3 +14,4 @@ Non la quantité de sang était trop importante. Il s'agissait sans aucun doute 
 Au bas d'un pommier, on pouvait en effet appercevoir une trainée de sang
 Une *sorciere* qui avait ses **r�gles** jouait à l'escargot dans le coin.
 
+Elle veut de la viande fraiche et quoi de meilleur qu'un*predateur*.
