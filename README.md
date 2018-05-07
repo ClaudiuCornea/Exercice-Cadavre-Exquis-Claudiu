@@ -12,5 +12,5 @@ Etait-ce une proie qui avait été trainée par son prédateur ?
 Non la quantité de sang était trop importante. Il s'agissait sans aucun doute d'un être humain ! 
 
 Au bas d'un pommier, on pouvait en effet appercevoir une trainée de sang
-Une *sorciere* qui avait ses **r�gles** jouaiat à l'escargot dans le coin.
+Une *sorciere* qui avait ses **r�gles** jouait à l'escargot dans le coin.
 
