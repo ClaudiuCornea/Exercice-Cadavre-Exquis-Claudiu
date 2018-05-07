@@ -14,3 +14,6 @@ Non la quantitÃ© de sang Ã©tait trop importante. Il s'agissait sans aucun doute 
 Au bas d'un pommier, on pouvait en effet appercevoir une trainÃ©e de sang
 Une *sorciere* qui avait ses **rÃgles** jouait Ã  l'escargot dans le coin.
 
+La sorcière pour éviter une hémoragie mortelle décida de placer une feuille d'érable à l'endroit
+souillé. Elle fit déposer sa découverte par la suite afin qu'aucune autre sorcière ne subisse cette
+humiliation. Ainsi fut créer la première bande hygiénique. L'histoire tomba dans l'oubli jusqu'à ce qu'un célèbre hisrorien ne retrouve du sang sêché au pied de l'arbre originel.
